@@ -1,1 +1,0 @@
-# syasya.github.io
